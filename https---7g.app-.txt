@@ -1,0 +1,1 @@
+https://7g.app/en/blog/terms-conditions
